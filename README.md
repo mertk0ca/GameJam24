@@ -1,1 +1,1 @@
-[.](https://mertkoca.itch.io/asterya)
+https://mertkoca.itch.io/asterya
